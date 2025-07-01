@@ -1,1 +1,3 @@
 # i-hate-everyone
+
+I HAVE NO IDEA HOW THIS WORKS JUST FOLLOW AND SIGN MY ATA OKA...?Y.
